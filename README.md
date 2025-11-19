@@ -1,4 +1,4 @@
-# WEEX Review Referral Code **[ discount ]** 2025: Secure, Low-Fee Trading with Big Bonuses
+# WEEX Referral Code **[ discount ]** 2025: Secure, Low-Fee Trading with Big Bonuses
 
 In the rapidly growing crypto market, choosing the right exchange can make all the difference. **WEEX Exchange** stands out in 2025 with a powerful offer for new users:
 
